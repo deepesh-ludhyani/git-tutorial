@@ -1,3 +1,3 @@
 # This is awesome.
 ----
-# smit chutiya!
+# smit jasani !
